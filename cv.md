@@ -27,4 +27,4 @@
 
 ## English
 
-**B2**  school and university education and self-study 
+**B2**  school and university education and self-study by duolingo and talking with friends
