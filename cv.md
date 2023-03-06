@@ -27,4 +27,4 @@
 
 ## English
 
-**B2**
+**B2**  school and university education and self-study 
